@@ -10,3 +10,5 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 I like coding
 
 안녕하세요 반갑습니다.
+
+오늘은 30월의 마지막이네요 .. 다들 행복합시다.
